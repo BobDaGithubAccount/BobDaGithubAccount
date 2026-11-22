@@ -1,1 +1,3 @@
-hi.
+- Mathematics @ Durham University
+- 1st Year as of 22/11/26
+- Anticipation to specialise into theoretical physics
